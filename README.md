@@ -1,0 +1,2 @@
+# premium-ventriloquist-001-ventriloquist-figure-jaw-mecha
+Tired of forgetting which spring tension or jaw hinge adjustment worked best for your ventriloquist figure? Stop guessing and start logging every fix, tweak, and part replacement with a dedicated Notion template.  The Ventriloquist Figure Jaw Mechanism Log is the only Notion template designed specifically for ventriloquists who need a central, sear
